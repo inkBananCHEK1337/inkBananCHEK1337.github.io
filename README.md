@@ -1,1 +1,0 @@
-# inkBananCHEK1337.github.io
